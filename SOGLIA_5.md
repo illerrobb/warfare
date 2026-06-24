@@ -14,6 +14,6 @@ Fuori dall'azienda l'aria è meno controllabile. C'è chi passa davanti alla rec
 
 Per questo l'ultimo gesto non riguarda più il dipendente. Riguarda la parete.
 
-Appendete un manifesto. Scegliete una carta spessa, un carattere pulito, parole abbastanza grandi da essere fotografate: cura, ascolto, persone, futuro. Fate in modo che chi entra legga quelle parole prima di incontrare gli occhi di chi lavora lì. Lo specchio migliore non riflette: istruisce lo sguardo.
+Appendete un manifesto. Scegliete una carta spessa, un carattere pulito, parole abbastanza grandi da essere fotografate: cura, ascolto, persone, futuro. Fate in modo che chi entra legga quelle parole prima di incontrare gli occhi di chi lavora lì. Se l'occhio umano è lo specchio dell'anima, il manifesto è lo specchio del reparto di comunicazione.
 
-Prendete il pennarello buono.
+E gli specchi, si sa, non sempre riflettono la realtà.
