@@ -6,6 +6,4 @@ Eppure c'è ancora qualcosa che non controllate. Lo notate alla macchinetta del 
 
 Quel posto va chiuso.
 
-Da qui in avanti il lavoro non è più sul singolo. È sullo spazio tra le persone: lo riempirete di buio, di classifiche, di silenzio dopo le vittorie, di riunioni che non finiscono mai. Non dovete renderli nemici — sarebbe volgare, e per giunta faticoso. Vi basta renderli soli. Un dipendente solo non si lamenta con nessuno, perché non c'è più nessuno con cui lamentarsi.
-
-*La paura piega l'individuo. Ma è la solitudine che lo tiene piegato. Toglietegli gli altri, e avrete tolto l'unico tetto sotto cui poteva ripararsi da voi.*
+Da qui in avanti il lavoro non è più sul singolo. È sullo spazio tra le persone: lo riempirete di buio, di classifiche, di silenzio dopo le vittorie, di riunioni che non finiscono mai. Non dovete renderli nemici, sarebbe volgare e faticoso. Basta renderli soli. Un dipendente solo non si lamenta con nessuno, perché non c'è più nessuno.

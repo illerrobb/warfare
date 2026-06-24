@@ -9,5 +9,3 @@ Resta un solo gesto, e non è verso di lui: è verso il mondo. Perché tutto que
 Per questo ciò che resta non è una tecnica. È uno specchio. È il manifesto che appenderete nell'atrio mentre, al piano di sopra, fate con cura tutto ciò che il manifesto promette di non fare.
 
 Prendete il pennarello buono.
-
-*La crudeltà perfetta non si nasconde: si firma con la parola opposta. Chi scrive "benessere" sulla porta non deve più giustificare niente di ciò che accade dietro.*
