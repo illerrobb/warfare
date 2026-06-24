@@ -1,11 +1,15 @@
 Soglia — L'ultimo riparo
 
-La paura ha attecchito. Lo vedete da come camminano lungo il corridoio: dritti, rapidi, gli occhi che non si posano troppo a lungo su niente. Avete un reparto di persone spaventate, e una persona spaventata è una persona efficiente.
+La paura ha preso.
 
-Eppure c'è ancora qualcosa che non controllate. Lo notate alla macchinetta del caffè, verso le undici: due teste vicine, una frase detta sottovoce, una risata che si spegne appena passate. Non è insubordinazione. È conforto. Si stanno facendo coraggio a vicenda. La paura li ha resi docili uno per uno, ma li ha lasciati insieme, e finché sono insieme hanno un posto dove la paura non arriva.
+Non aspettatevi tremori. La paura, quando è ben amministrata, assomiglia alla professionalità. La vedete nei passi più rapidi lungo il corridoio, nella schiena che si raddrizza al suono dell'ascensore, nelle finestre dei computer che cambiano appena la vostra ombra passa sul vetro della sala riunioni. Tutto procede. Meglio, anzi: tutto procede senza attrito.
 
-Quel posto va chiuso.
+Eppure resta un punto caldo.
 
-Da qui in avanti il lavoro non è più sul singolo. È sullo spazio tra le persone: lo riempirete di buio, di classifiche, di silenzio dopo le vittorie, di riunioni che non finiscono mai. Non dovete renderli nemici — sarebbe volgare, e per giunta faticoso. Vi basta renderli soli. Un dipendente solo non si lamenta con nessuno, perché non c'è più nessuno con cui lamentarsi.
+Verso le undici, vicino alla macchina del caffè, due persone si piegano l'una verso l'altra. Non stanno complottando. Il complotto richiede energia, e voi avete già provveduto a consumarla. Si stanno soltanto scaldando le mani a vicenda sopra una brace minima: una frase detta piano, un sopracciglio alzato, una risata breve che rientra subito in gola quando arrivate.
 
-*La paura piega l'individuo. Ma è la solitudine che lo tiene piegato. Toglietegli gli altri, e avrete tolto l'unico tetto sotto cui poteva ripararsi da voi.*
+Non sottovalutate quella brace. La paura rende docili i singoli, ma può renderli vicini. E dove due persone si riconoscono, anche solo per un secondo, nasce un riparo. Piccolo, ridicolo, quasi offensivo nella sua modestia. Proprio per questo resistente.
+
+Da qui in poi non lavorerete più sull'individuo. L'individuo è già preparato. Lavorerete sullo spazio tra le persone: quel mezzo metro invisibile in cui passano confidenza, gratitudine, memoria comune. Lo riempirete con buio sufficiente, con classifiche ben tenute, con vittorie lasciate raffreddare, con riunioni lunghe abbastanza da togliere il desiderio di parlare dopo.
+
+Non serve farli odiare. L'odio è rumoroso, impreciso, poco elegante. Basta renderli soli con buona educazione.

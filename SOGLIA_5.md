@@ -1,13 +1,19 @@
 Soglia — Lo specchio
 
-È completo. Il dipendente è entrato pieno, è stato svuotato cerchio dopo cerchio, e adesso è uscito con la scatola, la tazza sbagliata, l'ultimo stipendio ancora da riscuotere. La sedia è già di un altro. Il nome è già sparito dalla porta.
+È uscito.
 
-Avete fatto un lavoro pulito, documentato, senza impronte.
+Non con una scena grande. Le scene grandi costano e lasciano testimoni. È uscito con una scatola di cartone che piega un poco sul fondo, una tazza che forse non era nemmeno la sua, due cavi arrotolati male, il caricatore dimenticato da qualcuno anni prima e diventato per inerzia proprietà emotiva. Il suo nome è già stato tolto dal sistema. La sedia, spinta sotto la scrivania, ha l'aria neutra degli oggetti che non hanno mai conosciuto nessuno.
 
-Resta un solo gesto, e non è verso di lui: è verso il mondo. Perché tutto questo — la discesa intera, ogni cosa che avete tolto un pezzo alla volta — regge a una sola condizione: che nessuno, da fuori, sospetti. E il modo migliore perché nessuno sospetti non è nascondere ciò che fate. È dichiarare ad alta voce l'esatto contrario.
+Avete fatto un lavoro pulito.
 
-Per questo ciò che resta non è una tecnica. È uno specchio. È il manifesto che appenderete nell'atrio mentre, al piano di sopra, fate con cura tutto ciò che il manifesto promette di non fare.
+Non perfetto — la perfezione è una parola da consulenti junior — ma pulito. Ogni sottrazione ha avuto una procedura. Ogni ferita, un modulo. Ogni silenzio, una ragione organizzativa. Se qualcuno chiedesse, potreste mostrare calendari, policy, survey, verbali. La carta è un grande detergente: assorbe quasi tutto.
+
+Resta però l'esterno.
+
+Fuori dall'azienda l'aria è meno controllabile. C'è chi passa davanti alla reception, chi legge il sito, chi guarda le foto dei volontari aziendali con la pettorina colorata. Il mondo non deve vedere la discesa. Non perché la discesa sia sbagliata; semplicemente perché il mondo, non avendo responsabilità di risultato, tende a fraintendere.
+
+Per questo l'ultimo gesto non riguarda più il dipendente. Riguarda la parete.
+
+Appendete un manifesto. Scegliete una carta spessa, un carattere pulito, parole abbastanza grandi da essere fotografate: cura, ascolto, persone, futuro. Fate in modo che chi entra legga quelle parole prima di incontrare gli occhi di chi lavora lì. Lo specchio migliore non riflette: istruisce lo sguardo.
 
 Prendete il pennarello buono.
-
-*La crudeltà perfetta non si nasconde: si firma con la parola opposta. Chi scrive "benessere" sulla porta non deve più giustificare niente di ciò che accade dietro.*

@@ -1,9 +1,15 @@
 Soglia — La stanza vuota
 
-Fermatevi.
+Fermatevi un momento sulla porta.
 
-Alle vostre spalle qualcosa si è spento. La speranza del primo giorno, il perché del lavoro, la mano che decideva da sola — spenti, uno dopo l'altro, senza fretta. Adesso entrate in un open space dove la luce è la stessa di prima e le persone sono le stesse di prima, eppure qualcosa manca. Non lo vedreste, se non sapeste cosa cercare. È l'inclinazione della testa quando arriva una vostra mail. È il mezzo secondo di troppo prima che qualcuno risponda "sì". È il silenzio che ha smesso di essere attesa e ha cominciato a essere abitudine.
+Alle vostre spalle il primo tratto è finito. Non c'è stato rumore. Nessuno ha rovesciato una sedia, nessuno ha lasciato il badge sul tavolo con gesto teatrale. Si è spenta prima la luce del primo giorno, poi il perché, poi quella piccola abitudine testarda che porta una persona a decidere da sé dove mettere le mani.
 
-Una persona senza speranza è una stanza svuotata dei mobili. Comoda da riarredare. E ciò che verrà dopo non entra dove c'è ancora speranza: la speranza ingombra, resiste, fa rumore. Entra solo nel vuoto. Ecco perché si comincia spegnendo. Non è crudeltà. È sgombero.
+Adesso l'ufficio ha lo stesso odore di prima: plastica calda della stampante, caffè dimenticato, moquette che trattiene l'inverno anche a maggio. Le scrivanie sono al loro posto. I monitor si accendono. Qualcuno saluta. Solo che il saluto arriva un poco dopo, come una risposta passata attraverso l'acqua.
 
-La stanza è vuota. Portateci dentro la paura.
+È così che si riconosce un buon inizio: da ciò che non si vede più. Una persona privata della speranza non cade. Si accomoda. Abbassa il volume. Impara a occupare meno spazio nella propria giornata. Diventa una stanza senza mobili: niente contro cui urtare, niente che faccia memoria, niente che costringa chi entra a chiedere permesso.
+
+Molti manager cercano di costruire sulla speranza. È un errore sentimentale. La speranza ha spigoli. Tiene aperte le finestre, lascia correnti, fa domande sulla destinazione. Per lavorare bene serve prima lo sgombero. Non per durezza. Per ordine.
+
+Ora la stanza è vuota.
+
+Portateci dentro la paura.
