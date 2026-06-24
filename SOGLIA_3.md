@@ -1,7 +1,17 @@
 Soglia — L'ultima corda
 
-Adesso è solo. L'avete isolato con metodo: il buio, la classifica, il silenzio dopo la vittoria, le riunioni che mangiano le ore. Guarda i colleghi e non vede più alleati, vede caselle di una curva, concorrenti per un bonus, nomi su un verbale che nessuno legge.
+Adesso è solo.
 
-Eppure lavora ancora. Anzi, lavora di più. Un uomo solo, spaventato, mai ringraziato, continua a presentarsi alle otto, a consegnare, a riprovarci. Il motivo è semplice: gli resta una cosa sola. Non gliel'avete ancora tolta perché non si vede, non si firma, non sta in nessun contratto. È la convinzione che ci sia un patto, che se lui fa la sua parte prima o poi qualcuno farà la sua. È l'ultima corda che lo tiene attaccato all'azienda come a qualcosa di umano.
+Lo avete separato dagli altri senza dichiararlo. Il buio ha fatto la sua parte. La classifica ha dato un numero alla diffidenza. Le vittorie, non celebrate, sono passate come acqua sul pavimento: un momento di lucido e poi di nuovo polvere. Le riunioni hanno mangiato le ore in cui le persone, uscendo, avrebbero potuto dirsi la verità.
 
-Nei prossimi quattro capitoli imparerete a tagliarla. Non di netto, sarebbe uno spreco. A fibra a fibra: lo stipendio reso un mistero, il grazie mai detto, la carriera murata, la promessa fatta apposta per essere ritirata quando lui ci avrà costruito sopra la vita.
+Ora guarda i colleghi e vede superfici. Un nome in copia. Una faccia in una griglia. Un concorrente mite, magari gentile, ma pur sempre collocato dall'altra parte di una misura. Non c'è bisogno che lo pensi con cattiveria. Anzi, è preferibile che non lo faccia. Le strutture migliori lavorano al posto dei sentimenti.
+
+Eppure viene ancora.
+
+Alle otto è lì, con la giacca umida di pioggia o la camicia già stanca sotto il cappotto. Apre il portatile. Risponde. Consegna. Corregge. Riprova. Una persona può vivere a lungo senza calore, purché creda che esista ancora una contabilità morale: io faccio la mia parte, qualcuno un giorno farà la sua.
+
+Questa è l'ultima corda. Non compare nel contratto, non ha una voce in busta paga, non si può fotografare durante una visita dell'amministratore delegato. Tiene più di quanto dovrebbe. Proprio per questo va trattata con metodo.
+
+Non tagliatela di netto. Il colpo secco sveglia. Meglio lavorare fibra per fibra: rendere oscuro lo stipendio, non dire grazie, murare la carriera, promettere con voce ferma ciò che ritirerete quando lui ci avrà appeso abbastanza peso.
+
+Una corda sfilacciata non sembra un tradimento. Sembra usura.
