@@ -2,7 +2,7 @@ Soglia — L'ultimo riparo
 
 La paura ha attecchito. Lo vedete da come camminano lungo il corridoio: dritti, rapidi, gli occhi che non si posano troppo a lungo su niente. Avete un reparto di persone spaventate, e una persona spaventata è una persona efficiente.
 
-Eppure c'è ancora qualcosa che non controllate. Lo notate alla macchinetta del caffè, verso le undici: due teste vicine, una frase detta a voce bassa, una risata che si spegne appena passate. Non è insubordinazione. È peggio. È conforto. Si stanno facendo coraggio a vicenda. La paura li ha resi docili come individui, ma li ha lasciati insieme — e finché sono insieme, hanno un posto dove la paura non arriva.
+Eppure c'è ancora qualcosa che non controllate. Lo notate alla macchinetta del caffè, verso le undici: due teste vicine, una frase detta sottovoce, una risata che si spegne appena passate. Non è insubordinazione. È conforto. Si stanno facendo coraggio a vicenda. La paura li ha resi docili uno per uno, ma li ha lasciati insieme, e finché sono insieme hanno un posto dove la paura non arriva.
 
 Quel posto va chiuso.
 
